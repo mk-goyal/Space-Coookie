@@ -1,0 +1,2 @@
+# Space-Coookie
+DEXTOOLS: https://www.dextools.io/app/uniswap/pair-explorer/0xee0e7dbd96c988d863d9460c2df4497684213f84  Telegram https://t.me/spacecoookieofficial We all share COOOKIE  TOKENOMICS 8% reflection each directiion!  2% buy / 5% sell for dev and marketing  RENOUNCE: https://etherscan.io/tx/0x2bdc5626a154a25c91293114f896d6b8bf1531812b35f3bacd9dbfadf3212415  LIQ LOCK https://app.unicrypt.network/amm/uni-v2/pair/0xee0e7dbd96c988d863d9460c2df4497684213f84
